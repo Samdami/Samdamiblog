@@ -1,1 +1,1 @@
-# Samdamiblog
+# Samdamiblog.
